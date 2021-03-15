@@ -1,0 +1,2 @@
+# focifo.com
+2020-21 has been a significant turning point in the political, economic, technological and social realms. This exercise has become the year of the ‘black swan’ of Covid-19, but it will also stand out for the Black Lives Matter, for several climatic disasters and for witnessing an American election that still keeps a large part of the planet in suspense . All this has accelerated the existing business communication trends and have given rise to others that we did not even imagine. In today’s business world, latest news is something very important.
